@@ -9,3 +9,6 @@ Meu nome é Gabriela Bueno
  ### Você pode entrar em contato comigo ⤵️
 
  Gabriela.teixeira.bueno@escola.pr.gov.br
+
+
+![](https://media.tenor.com/BlusbEDwfZEAAAAj/take-that-woman-power.gif)
